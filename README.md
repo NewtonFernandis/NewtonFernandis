@@ -9,5 +9,5 @@ So yeah, that's me in a nutshell. Let's connect and geek out over all things tec
 
 ---
 
-
+[![An image of @newtonfernandis's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/newtonfernandis)](https://holopin.io/@newtonfernandis)
 
